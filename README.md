@@ -1,0 +1,5 @@
+- Hi, I'm Aimi.
+- I'm just a cute, wholesome, and "somewhat" fat loli.
+- I like food and games. I also make games for fun.
+- If you want to talk to me or something, my discord name and tag are Aimi#7026. I usually just talk about food and my game all the time, though.
+- Though, if you like fat girls for some reason then you'd probably like me.
